@@ -1,6 +1,2 @@
-
-#!/bin/bash >
-ls >>
-
-
-ls
+#!/bib/bash/\nls> 1-listit
+'ls'>> 1-listit
