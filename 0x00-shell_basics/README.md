@@ -1,1 +1,1 @@
-fabulous readme
+faboulous readme
