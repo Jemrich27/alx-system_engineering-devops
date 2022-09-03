@@ -1,1 +1,1 @@
-hot readme
+waxed red readme
