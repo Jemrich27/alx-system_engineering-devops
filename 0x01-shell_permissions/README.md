@@ -1,1 +1,1 @@
-crick readme
+fool readme
