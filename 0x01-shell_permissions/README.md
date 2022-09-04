@@ -1,1 +1,1 @@
-vim readme
+crick readme
