@@ -1,1 +1,1 @@
-open readme
+tight readme
