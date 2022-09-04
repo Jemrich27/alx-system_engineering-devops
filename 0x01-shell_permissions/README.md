@@ -1,1 +1,1 @@
-long readme
+man readme
