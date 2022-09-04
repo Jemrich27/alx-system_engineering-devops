@@ -1,1 +1,1 @@
-game readme
+long readme
