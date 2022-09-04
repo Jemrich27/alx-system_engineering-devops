@@ -1,1 +1,1 @@
-my readme
+open readme
