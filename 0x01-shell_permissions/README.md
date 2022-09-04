@@ -1,1 +1,1 @@
-man readme
+go readme
