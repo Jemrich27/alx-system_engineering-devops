@@ -1,1 +1,1 @@
-We need letters only, digits a side
+Why do people take bribes from the poor
