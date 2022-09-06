@@ -1,1 +1,1 @@
-opposy oppozi
+The altar of God has Healing powers
