@@ -1,1 +1,1 @@
-love is ecponent of life!
+zig zag coding is the great!
