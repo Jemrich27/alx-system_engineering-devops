@@ -1,1 +1,1 @@
-Be wise to cool others
+Vi editor seems to be the grand daddy
