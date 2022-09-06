@@ -1,1 +1,1 @@
-This is so cool though hard
+Conting your blessings one by one
