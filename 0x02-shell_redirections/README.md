@@ -1,1 +1,1 @@
-fixed mindset is bad
+Creating unique files with uniq command
