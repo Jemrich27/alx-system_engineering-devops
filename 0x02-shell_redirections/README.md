@@ -1,1 +1,1 @@
-The altar of God has Healing powers
+We need letters only, digits a side
