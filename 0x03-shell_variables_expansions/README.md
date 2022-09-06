@@ -1,1 +1,1 @@
-zig zag coding is the great!
+Twelve combined combinations
