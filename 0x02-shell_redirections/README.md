@@ -1,1 +1,1 @@
-Confused simileys are fun
+confused smiley
