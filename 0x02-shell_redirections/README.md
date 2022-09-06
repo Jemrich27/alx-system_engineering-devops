@@ -1,1 +1,1 @@
-The file is so furious
+Fooling the fool is not funny
