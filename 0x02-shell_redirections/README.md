@@ -1,1 +1,1 @@
-Conting your blessings one by one
+fixed mindset is bad
