@@ -1,1 +1,1 @@
-Creating unique files with uniq command
+Be wise to cool others
