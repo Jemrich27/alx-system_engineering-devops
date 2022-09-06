@@ -1,1 +1,1 @@
-Vi editor seems to be the grand daddy
+opposy oppozi
