@@ -1,1 +1,1 @@
-The 4 last kings of Edom
+display the first 10 lines
