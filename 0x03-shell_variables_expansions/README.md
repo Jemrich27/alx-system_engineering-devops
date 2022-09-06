@@ -1,1 +1,1 @@
-My life all for Christ!
+True knowledge addition is power
