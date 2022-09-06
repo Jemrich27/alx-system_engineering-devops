@@ -1,1 +1,1 @@
-True knowledge addition is power
+Divide and rule is the order of the day!
